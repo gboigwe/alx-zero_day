@@ -1,1 +1,1 @@
-More features coming upin this repository, stay tuned
+More features coming up in this repository, stay tuned
